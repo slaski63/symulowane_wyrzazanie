@@ -1,0 +1,1 @@
+# symulowane_wyrzazanie
